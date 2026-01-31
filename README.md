@@ -2,7 +2,7 @@
 
 [![Dress To Impress Script 2025 Banner](https://i.postimg.cc/brL14xX8/11.jpg)](https://postimg.cc/gLXwZ6kB)
 
-# Dress To Impress Script 2025 ✨ | Infinite Diamonds Auto Win Max Score Speed Fly God Mode Unlock ALL Outfits Accessories Poses VIP Items | Dress To Impress Script Undetected December 2025 👗💎
+# Dress To Impress Script 2026 ✨ | Infinite Diamonds Auto Win Max Score Speed Fly God Mode Unlock ALL Outfits Accessories Poses VIP Items | Dress To Impress Script Undetected December 2026 👗💎
 
 ![Version](https://img.shields.io/badge/Version-2025.12.20-FF69B4?style=for-the-badge&logo=roblox&logoColor=white)
 ![Status](https://img.shields.io/badge/Status-UNDETECTED%20100%25-success?style=for-the-badge)
